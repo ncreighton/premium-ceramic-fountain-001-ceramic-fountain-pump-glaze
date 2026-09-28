@@ -1,0 +1,2 @@
+# premium-ceramic-fountain-001-ceramic-fountain-pump-glaze
+Tired of guessing the perfect glaze-to-seal ratio for your ceramic fountains, only to end up with clogged pumps and cracked finishes?  The Ceramic Fountain &amp; Pump Glaze Seal Lab is your all-in-one Notion template for systematically tracking every glaze batch, pump performance test, and sealant cure. It eliminates costly guesswork, ensures consisten
